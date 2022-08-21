@@ -1,0 +1,1 @@
+I am Kishan Grover, a TIET'22 graduate, and I am enthusiastic about my profession. I enjoy solving new, challenging problems, and I strive to develop my problem-solving and analytical skills on a constant basis. I am constantly strengthening my skills and excited to learn new ones,I am focused and devoted to my profession, and I make every attempt to attain objectives.
